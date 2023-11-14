@@ -16,7 +16,7 @@ ultrakill, trigun, friday night funkin', identity v, pokemon,
 <br>resident evil, nintendo, jerma, creepypastas <a href="https://rentry.co/wolfwood_">+ more</a>
 <br><br><b>minors limit interaction with me</b> <i>(friends excluded)</i>
 <br>+ i hide freely. i'll find out if i don't like you myself
-<br><br><i><a href="https://vashwoods.straw.page">my strawpage</a> for more info</i>
+<br><br><i><a href="https://soulcatcher.straw.page">my strawpage</a> for more info</i>
 <br>
 <br><i>let it become the web that entangles us all.</i>
 </p>
